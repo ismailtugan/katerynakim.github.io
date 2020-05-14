@@ -1,6 +1,6 @@
 ## Welcome to my homepage :raising_hand_woman:!
 
-![photo with me](https://files.slack.com/files-pri/T91PPTG9H-F013GMMKD0A/image_from_ios.jpg) 
+![photo with me](https://user-images.githubusercontent.com/62487749/81972197-8acd8280-9622-11ea-88c7-ac444a5868a7.png) 
 
 ### Summary
 I am 23 years old master graduate in hospitality management. My career path is various and due to that I have obtained all the necessary skills to feel myself confident
